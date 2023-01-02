@@ -1,4 +1,4 @@
-### Hey there :wave:
+### Hello there! :wave:
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%2336BCF7&lines=This+is+Jaspinder+Kaur)](https://git.io/typing-svg)
 
