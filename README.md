@@ -28,5 +28,7 @@
 
 - 🏫 2024 B.Tech.IT graduate from Chitkara University, Punjab
 - 🙋‍ More about me: Visit my [website](https://Jaspinder-kaur.github.io/)
-- 🖇  Follow me on [LinkedIn](https://www.linkedin.com/in/jaspinder-kaur-308432236/)
+- 🖇  Follow me on [LinkedIn](https://www.linkedin.com/in/jaspinder-kaur-308432236)
+- 🖇  Follow me on [Twitter](https://twitter.com/Jaspinder__kaur)
+- 🖇  Follow me on [Instagram](https://www.instagram.com/_jaspinderkaur/)
 - 👯 Pronouns: She/Her
